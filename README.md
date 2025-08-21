@@ -8,7 +8,7 @@
 - i don't know what else to add
 - um I like mafioso lelelelele
 
-![image](https://cdn.discordapp.com/attachments/895643942836637717/1408183283568607263/Untitled90.png?ex=68a8d061&is=68a77ee1&hm=6a7124fc34fd9c166a6297abe99c3c9dcc37bfa6a81a2bcf4c76c317b8858f93&)
+![image](https://cdn.discordapp.com/attachments/895643942836637717/1408192346008584344/Untitled90_1.png?ex=68a8d8d2&is=68a78752&hm=99a88acdaf1315ba6322456c733fd167c32a203240d66f6d61569a430367cdda&)
   
 <!--
 **don-sonnellino/don-sonnellino** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
