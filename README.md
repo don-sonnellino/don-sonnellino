@@ -1,5 +1,15 @@
-wip
+image blabbla(still wip)
 
+- I'm Len, hello :P
+- you won't find me interacting first, it's super rare.. 0.0001% chance
+- uhh I possibly have social anxiety, but I'm not sure sigh
+- I'm reaaally quiet, unless the someone starts the convo,,
+- I do struggle with my feelings, bare with meee.... 💔
+- i don't know what else to add
+- um I like mafioso lelelelele
+
+  image image lalala(wip)
+  
 <!--
 **don-sonnellino/don-sonnellino** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
