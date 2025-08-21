@@ -1,4 +1,4 @@
-image blabbla(still wip)
+![image](https://cdn.discordapp.com/attachments/895643942836637717/1408169416209993889/Untitled89_20250822032118.png?ex=68a8c377&is=68a771f7&hm=6e72dbf0c00bfb6072667f02881218da8c82365154f68a83c6dcc2f5ea30554b&)
 
 - I'm Len, hello :P
 - you won't find me interacting first, it's super rare.. 0.0001% chance
