@@ -8,7 +8,7 @@
 - i don't know what else to add
 - um I like mafioso lelelelele
 
-  image image lalala(wip)
+![image](https://cdn.discordapp.com/attachments/895643942836637717/1408183283568607263/Untitled90.png?ex=68a8d061&is=68a77ee1&hm=6a7124fc34fd9c166a6297abe99c3c9dcc37bfa6a81a2bcf4c76c317b8858f93&)
   
 <!--
 **don-sonnellino/don-sonnellino** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
