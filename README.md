@@ -1,4 +1,4 @@
-![image](https://files.catbox.moe/hksn16.png2941715028fb2f6f2fb787&)
+![image](https://files.catbox.moe/hksn16.png)
 
 - I'm Len, hello :P
 - you won't find me interacting first, it's super rare.. 0.0001% chance
