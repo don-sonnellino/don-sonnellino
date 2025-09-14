@@ -1,4 +1,4 @@
-![image](https://cdn.discordapp.com/attachments/895643942836637717/1408282452870303906/Untitled89_20250822104752.png?ex=68a92cbd&is=68a7db3d&hm=b366dd5a3b76e0ee2d6442be33040d13615fd63b6d2941715028fb2f6f2fb787&)
+![image](https://files.catbox.moe/hksn16.png2941715028fb2f6f2fb787&)
 
 - I'm Len, hello :P
 - you won't find me interacting first, it's super rare.. 0.0001% chance
