@@ -5,6 +5,7 @@
 - uhh I possibly have social anxiety, but I'm not sure sigh
 - I'm reaaally quiet, unless the someone starts the convo,,
 - I do struggle with my feelings, bare with meee.... 💔
+- I'm usually on 24/7 on holidays/weekends 
 - i don't know what else to add
 - um I like mafioso lelelelele
 
