@@ -9,7 +9,7 @@
 
 ![image](https://files.catbox.moe/wa7c47.png)
 
-![](https://cdn.discordapp.com/attachments/895643942836637717/1423354693136027741/tumblr_sy6gd5NrOJ1ahw4dk_720-ezgif.com-gif-maker.gif?ex=68e001db&is=68deb05b&hm=0c4915e76bd863de9247731544a2ef3a79d3ecf0f4c60d821622b8db410941ac&)
+![oh](https://tenor.com/en-GB/view/spamtenna-spamton-spamton-g-spamton-tenna-mr-ant-tenna-gif-9687341437388464900)
   
 <!--
 **don-sonnellino/don-sonnellino** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
