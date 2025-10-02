@@ -9,7 +9,7 @@
 
 ![image](https://files.catbox.moe/wa7c47.png)
 
-![image](https://tenor.com/en-GB/view/spamtenna-spamton-spamton-g-spamton-tenna-mr-ant-tenna-gif-9687341437388464900)
+
   
 <!--
 **don-sonnellino/don-sonnellino** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
