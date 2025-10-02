@@ -2,16 +2,14 @@
 
 - I'm Len / Tenna , hello :P
 - you won't find me interacting first, it's super rare.. 0.0001% chance
-- uhh I possibly have social anxiety, but I'm not sure sigh
 - I'm reaaally quiet, unless the someone starts the convo,,
 - I do struggle with my feelings, bare with meee.... 💔
 - I'm always online, but more during holidays/weekends though (usually offtab on ponytown)
-- i don't know what else to add
-- um I like mafioso lelelelele
+
 
 ![image](https://files.catbox.moe/wa7c47.png)
 
-![image](https://files.catbox.moe/6itj28.jpg)
+![image](https://files.catbox.moe/bbto6v.gif)
   
 <!--
 **don-sonnellino/don-sonnellino** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
