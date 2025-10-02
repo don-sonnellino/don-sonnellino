@@ -9,7 +9,7 @@
 
 ![image](https://files.catbox.moe/wa7c47.png)
 
-![gif](https://files.catbox.moe/bbto6v.gif)
+![](https://files.catbox.moe/bbto6v.gif)
   
 <!--
 **don-sonnellino/don-sonnellino** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
