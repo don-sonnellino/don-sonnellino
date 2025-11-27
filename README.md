@@ -1,10 +1,11 @@
 ![image](https://files.catbox.moe/hksn16.png)
 
-- I'm Len / Tenna , hello :P
-- you won't find me interacting first, it's super rare.. 0.0001% chance
-- I'm reaaally quiet, unless the someone starts the convo,,
-- I do struggle with my feelings, bare with meee.... 💔
-- I'm always online, but more during holidays/weekends though (usually offtab on ponytown)
+- I'm Len / Tenna !! or whatever character i am using ^^
+- int freely , but i get drained really fast !! +im super awkward
+
+- “ what about c+h?” , I don't mind , but ask if I'm with my friends alright ?
+- w2i , i might not see your message . ( i can randomly go afk )
+  
 
 
 ![image](https://files.catbox.moe/wa7c47.png)
