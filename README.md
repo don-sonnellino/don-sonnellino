@@ -2,6 +2,7 @@
 
 - I'm Len / Tenna !! or whatever character i am using ^^
 - int freely , but i get drained really fast !! +im super awkward , my conversation skills aren't that good
+- oh and you won't really see me interacting first 
 
 - “ what about c+h?” , I don't mind , but ask if I'm with my friends alright ?
 - w2i , i might not see your message . ( i can randomly go afk )
