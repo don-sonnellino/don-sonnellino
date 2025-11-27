@@ -1,7 +1,7 @@
 ![image](https://files.catbox.moe/hksn16.png)
 
 - I'm Len / Tenna !! or whatever character i am using ^^
-- int freely , but i get drained really fast !! +im super awkward
+- int freely , but i get drained really fast !! +im super awkward , my conversation skills aren't that good
 
 - “ what about c+h?” , I don't mind , but ask if I'm with my friends alright ?
 - w2i , i might not see your message . ( i can randomly go afk )
