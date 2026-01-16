@@ -7,7 +7,7 @@
 - “ what about c+h?” , I don't mind , but ask if I'm with my friends alright ?
 - w2i , i might not see your message . ( i can randomly go afk )
   
- (some of the sites here r lowkey outdated cause im too lazy)
+ (some of the sites here r lowkey outdated cause im too lazy and icba updating)
 
 ![image](https://files.catbox.moe/wa7c47.png)
 
